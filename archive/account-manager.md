@@ -1,7 +1,7 @@
 # Account Manager at [Draft.dev](https://draft.dev/)
 > $83,200/year, full-time contract
 
-If you're a stellar communicator who can organize and manage lots of simultaneous projects and conversations, this might be the perfect role for you. As an Account Manager, you'll help with new client onboarding, delivery of content, and renewing our clients (marketing teams at technology startups). If you have a background in content marketing, marketing agency account management, or developer marketing/relations, you'll have a big advantage understanding our clients and content.
+If you're a stellar communicator who can organize and manage lots of simultaneous projects and conversations, this might be the perfect role for you. As an Account Manager, you'll help with new client onboarding, delivery of content, and renewing our clients (marketing teams at technology startups). If you have a background in content marketing, marketing agency account management, or developer marketing/relations, you'll have a big advantage understanding our clients and content. 
 
 *Note: This is not a sales role. You will primarily be maintaining and improving relationships with existing clients, but it will require significant face-time with clients and making renewals and upsells.*
 
